@@ -1,1 +1,1 @@
-# Masodik
+# Nagyon kreatív a feladatmegoldásom :))
